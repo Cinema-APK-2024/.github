@@ -2,7 +2,7 @@
 O Cinema APK é um aplicativo de streaming que oferece acesso gratuito a um vasto catálogo de filmes, séries, documentários e outros conteúdos. Ele é ideal para quem procura uma alternativa prática aos serviços pagos, como Netflix, Amazon Prime ou Disney+. A versão 2024 traz diversas melhorias em relação às versões anteriores, incluindo:
 
 ## Download Gratis: [Cinema APK](https://bit.ly/3Cu9fo0)
-## Participe da comunidade APKTudo para baixar os jogos mais recentes gratuitamente: [TeLeGram](t.me/apktudo)
+## Participe da comunidade APKTudo para baixar os jogos mais recentes gratuitamente: [APKTuDo](t.me/apktudo)
 
 ● Interface mais intuitiva: fácil de navegar, mesmo para usuários iniciantes.
 
